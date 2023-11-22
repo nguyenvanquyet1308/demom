@@ -1,1 +1,1 @@
-vãi loz luon dau cat moi
+quyet quyet
